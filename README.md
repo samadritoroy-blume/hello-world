@@ -1,1 +1,1 @@
-Hello everyone! I am Samadrito Roy.
+Hello everybody! I am Samadrito Roy.
