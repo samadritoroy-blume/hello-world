@@ -1,1 +1,1 @@
-Hello everybody! Foo Bar.
+Hello everybody!
